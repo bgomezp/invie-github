@@ -1,3 +1,3 @@
 # invie-github
 guitarras invie
-LA MANERA FACIL DE TOCR GUITARRA
+LA MANERA FACIL DE TOCAR GUITARRA
